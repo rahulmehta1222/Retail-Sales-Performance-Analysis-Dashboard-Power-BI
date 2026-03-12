@@ -105,4 +105,4 @@ Aspiring Data Analyst
 
 
 
-If you want, I can also show you 3 small improvements that will make your GitHub project look like a SENIOR Data Analyst portfolio (almost nobody knows these tricks). 🚀
+
